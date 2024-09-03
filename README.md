@@ -1,5 +1,5 @@
 
-                    sonia / adam / amity
+                                               sonia / adam / amity
 
-                    he / she ⁔ lesbian
+                                               he / she ⁔ lesbian
 
